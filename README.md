@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on that interests me specifically on the above topics
 - 📫 reach me by mail 
 - 😄 Pronouns: not into this stuff
-- ⚡ Fun fact: people like other people how look similar to themselves
+- ⚡ Fun fact: people like other people who look similar to themselves
 
 <!---
 cHaRN03/cHaRN03 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
